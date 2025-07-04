@@ -31,4 +31,6 @@ Lebih lengkapnya bisa
 
 Silakan gunakan formulir kontak di dalam website atau hubungi saya melalui:
 - Email: anggoroadit01@gmail.com
-- LinkedIn: [linkedin.com/in/anggoroadit](https://linkedin.com)
+- LinkedIn: www.linkedin.com/in/anggoroadit
+
+
